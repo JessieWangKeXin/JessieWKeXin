@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @JessieWKeXin
+- 👋 Hi, I’m @JessieWangKeXin
 - 👀 I’m interested in applying advanced quantitative modeling to Psychopathology Research 🧠 🧬 + Percise Mental Health Service Development 👩🏻‍⚕️
 - 🌱 I’m currently learning Clinical Psychology at Columbia U 
 - 💞️ I’m looking to collaborate on any creative projects that fall under line 2!
